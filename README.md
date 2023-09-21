@@ -1,2 +1,2 @@
 # star-baby24
-first repository on Github
+I am a model and i love drinking coffee
